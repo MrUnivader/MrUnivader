@@ -1,5 +1,6 @@
-- 👋 Hi, I’m Yash.sangra , i am 13
+- 👋 Hi, I’m Yash.sangra , i am 14
 - 👀 I’m interested in playing vedio games and coding
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaborate on making games
-- 📫 you can reach me on my gmail which is yash.sangra@gmail.com
+- 📫 you can reach me on my gmail which is yash.sangra@gmail.com as well as discord - MrUnivader ⨊#0040
+- 
